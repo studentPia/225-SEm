@@ -9,7 +9,7 @@ J. T.
 L. P.
 M. S.
 P. V.
-R. L.
+R. Landry
 S. V.
 Z. T.
 Z. S.
