@@ -7,7 +7,7 @@ E. L.
 Samy
 J. T.
 L. P.
-M. S.
+Métral Sébastien
 P. V.
 R. Landry
 S. V.
