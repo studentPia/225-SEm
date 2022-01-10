@@ -1,7 +1,7 @@
 # 225-Sem I5 2021/2022
 
 C. B.
-C. X.
+Xavier
 C. R.
 E. L.
 Samy
