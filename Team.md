@@ -11,5 +11,5 @@ Métral Sébastien
 P. V.
 R. Landry
 S. V.
-Z. T.
+Z. Thomas
 Z. S.
